@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Welcome!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+My name is Adam Chanthakeo. I am currently a student at CU Boulder in the CPSB program. Currently, I hold a BA in Biology, Society, and Enviroment with a Focus in genetics and a BS in Nursing. Currently, I am an Intensive Care Unit and Hospice Nurse.
